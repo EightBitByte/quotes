@@ -20,3 +20,7 @@ Jesus Christ<br><br>
 > The fear is never reaching your potential. Always falling short. Always quitting before you're done. Always procrastinating. Always not doing the right thing. And then, one day, you're an old man. You look back and go, 'God I could have been great.'
 
 Joe Rogan<br><br>
+
+> If you want something bad enough, you can't let anybody tell you that you can't do it.
+
+Tom Platz<br><br>
