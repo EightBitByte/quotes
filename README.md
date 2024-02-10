@@ -24,3 +24,7 @@ Joe Rogan<br><br>
 > If you want something bad enough, you can't let anybody tell you that you can't do it.
 
 Tom Platz<br><br>
+
+> Splat, hit the ground, but I'll bounce right back<br>Trust me, I ain't goin' down like that
+
+Connor Price<br><br>
