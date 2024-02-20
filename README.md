@@ -29,6 +29,6 @@ Tom Platz<br><br>
 
 Connor Price<br><br>
 
-> God, grant me the serenity<br>To accept the things I cannot change<br>Courage to change the things I can<br>And wisdom to know the difference.<br>Living one day at a time, enjoying one moment a time<br>Accepting hardships as the pathway to peace<br>Taking, as Jesus did, this sinful world<br>Trusting that He will make all things right<br>If I surrender to His Will<br>That I may be reasonably happy in this life<br>And surpremely happy with You forever in the next.<br>Amen, amen, amen
+> God, grant me the serenity<br>To accept the things I cannot change<br>Courage to change the things I can<br>And wisdom to know the difference.<br>Living one day at a time, enjoying one moment a time<br>Accepting hardships as the pathway to peace<br>Taking, as Jesus did, this sinful world<br>As it is, not as I would have it<br>Trusting that He will make all things right<br>If I surrender to His Will<br>That I may be reasonably happy in this life<br>And surpremely happy with You forever in the next.<br>Amen, amen, amen
 
 Andy Mineo<br><br>
